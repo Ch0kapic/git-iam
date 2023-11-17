@@ -3,17 +3,18 @@ IAM
 
 L'École du micro d'argent
 L'École du micro d'argent
-L'Écoledu micro d'argent
+L'École du micro d'argent
 L'École du micro d'argent
 L'École du micro d'argent
 L'École du micro d'argent
 L'École du micro d'argent
 
-Assis en tailleur, voilà des heures queje médite
+Assis en tailleur, voilà des heures que je médite
 Sur ma montagne et je n'arrive pas à faire le vide
 Je focalisesur le diaphragme, j'augmente mon énergie
 Réveille la bête qui dans mon âme est tapie
-Je viens de terminer ma préparation mentaleIls vont goûter à l'incomparable style du Serval
+Je viens de terminer ma préparation mentale
+Ils vont goûter à l'incomparable style du Serval
 Le souffle des quatre vents décuple ma puissance
 De longs mois de travail ont exacerbémes sens
 J'ai créé un déséquilibre interne volontairement
@@ -38,3 +39,4 @@ L'École du micro d'argent
 Je représente
 L'École du micro d'argent
 L'École du micro d'argent
+Je représente
