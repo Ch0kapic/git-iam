@@ -69,3 +69,5 @@ Tel est mon labeur, tu sais de qui je défends l'honneur
 L'École du micro d'argent
 L'École du micro d'argent
 Je représente
+L'École du micro d'argent
+L'École du micro d'argent
